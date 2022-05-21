@@ -29,8 +29,6 @@ No senso comum dos homens, o descobridor de uma arte / técnica é alvo de admir
 
 ​O médico prescreve uma medicação, sabe que ela funcionará e sabe o por quê.  Em ambas as situações, do aconselhador experiente e da prescrição médica, o mesmo resultado ocorrerá, mas é evidente que o médico possui um grau de saber que o do aconselhador não tem, pois conhece as causas da cura. Assim diferencia-se a experiência da técnica / arte.
 
-​	
-
 - **Conhecimento / Ciência - ἐπιστήμη**
  
 Maior grau de saber, visa apenas o saber e não se preocupa com o que dele se deriva. Aquele que busca o conhecimento por si mesmo, busca, acima de tudo, o conhecimento em mais alto grau. Diferencia-se aqui, notavelmente, da técnica, pois não visa a utilidade ou o prazer como fim. 
