@@ -25,7 +25,7 @@ No senso comum dos homens, o descobridor de uma arte / técnica é alvo de admir
 
 ​Categoria que anexa a costura, a medicina, a poesia, o musico e o encanador. Um grau acima da experiência, onde a pessoa não só sabe que dado evento ocorrerá, mas também suas causas. As artes / técnicas tratam dos conceitos universais, e não podem ser plenamente alcançadas sem a experiência dos particulares.
 
-​A poesia e a medicina são artes / técnicas, mas se diferem em seu objetivo. A medicina tem como foco uma utilidade prática de cura, já a poesia seria unicamente voltada ao prazer. Na concepção grega antiga o poeta seria mais digno do titulo de sábio que o medico, pois as artes voltadas a uma utilidade seriam inferiores às voltadas ao prazer. Nota-se que a concepção positiva em relação ao *ócio* se dá na crença de que essa seria uma condição necessária para a concepção das ciências. Não ser útil, nesse caso, seria algo positivo.  
+​A poesia e a medicina são artes / técnicas, mas se diferem em seu objetivo. A medicina tem como foco uma utilidade prática de cura, já a poesia seria unicamente voltada ao prazer. Na concepção grega antiga o poeta seria mais digno do titulo de sábio que o médico, pois as artes voltadas a uma utilidade seriam inferiores às voltadas ao prazer. Nota-se que a concepção positiva em relação ao *ócio* se dá na crença de que essa seria uma condição necessária para a concepção das ciências. Não ser útil, nesse caso, seria algo positivo.  
 
 ​O médico prescreve uma medicação, sabe que ela funcionará e sabe o por quê.  Em ambas as situações, do aconselhador experiente e da prescrição médica, o mesmo resultado ocorrerá, mas é evidente que o médico possui um grau de saber que o do aconselhador não tem, pois conhece as causas da cura. Assim diferencia-se a experiência da técnica / arte.
 
@@ -39,9 +39,9 @@ Atribuimos ao sábio a capacidade de compreender o que não é facilmente compre
 
 O mais sábio é aquele que possui maior conhecimento das causas, e é capaz de ensiná-las aos outros. Os que dizem quais as causas das coisas são os que as ensinam. 
 
-Consideramos em maior grau de sapiência aquele ciência que é hierarquicamente superior às demais. Esta versa sobre os primeiros principios e causas, pois por eles e a partir deles se conhece todas as outras coisas, é a que tem mais autoridade sobre as demais, pois conhece para qual fim é feita cada coisa. As mais exatas entre as ciencias são as que tratam dos primeiros princípios.
+Consideramos em maior grau de sapiência aquele ciência que é hierarquicamente superior às demais. Esta versa sobre os primeiros principios e causas, pois a partir daí se conhece todas as outras coisas, é a ciência que tem mais autoridade sobre as demais, pois conhece para qual fim é feita cada coisa. As mais exatas entre as ciencias são as que tratam dos primeiros princípios.
 
-Assim se deu o nascimento da filosofia: Por admiração, pela perplexidade frente a dificuldades de compreenção, pouco a pouco avançando e alcançando problemas sempre maiores. Quem experimenta a sensação de dúvida e admiração reconhece que não sabe, ama essas coisas admiráveis e, então, filosofa para libertar-se da ignorancia Sendo evidente, assim, que busca o saber em vista, unicamente, do saber. 
+Assim se deu o nascimento da filosofia: Por admiração, pela perplexidade frente a dificuldades de compreenção, pouco a pouco avançando e alcançando problemas sempre maiores. Quem experimenta a sensação de dúvida e admiração reconhece que não sabe, ama essas coisas admiráveis e, então, filosofa para libertar-se da ignorancia. Sendo evidente, assim, que busca o saber em vista, unicamente, do saber. 
 
 
   
