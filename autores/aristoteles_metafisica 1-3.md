@@ -39,7 +39,7 @@ Atribuimos ao sábio a capacidade de compreender o que não é facilmente compre
 
 O mais sábio é aquele que possui maior conhecimento das causas, e é capaz de ensiná-las aos outros. Os que dizem quais as causas das coisas são os que as ensinam. 
 
-Consideramos em maior grau de sapiência aquele ciência que é hierarquicamente superior às demais. Esta versa sobre os primeiros principios e causas, pois a partir daí se conhece todas as outras coisas, é a ciência que tem mais autoridade sobre as demais, pois conhece para qual fim é feita cada coisa. As mais exatas entre as ciencias são as que tratam dos primeiros princípios.
+Consideramos em maior grau de sapiência aquele ciência que é hierarquicamente superior às demais. Esta versa sobre os primeiros principios e causas, pois a partir daí se conhece todas as outras coisas, é a ciência que tem mais autoridade sobre as demais, pois conhece para qual fim é feita cada coisa. As mais exatas entre as ciências são as que tratam dos primeiros princípios.
 
 Assim se deu o nascimento da filosofia: Por admiração, pela perplexidade frente a dificuldades de compreenção, pouco a pouco avançando e alcançando problemas sempre maiores. Quem experimenta a sensação de dúvida e admiração reconhece que não sabe, ama essas coisas admiráveis e, então, filosofa para libertar-se da ignorancia. Sendo evidente, assim, que busca o saber em vista, unicamente, do saber. 
 
